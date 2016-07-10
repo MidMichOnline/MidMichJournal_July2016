@@ -1,0 +1,1 @@
+# MidMichJournal_July2016
