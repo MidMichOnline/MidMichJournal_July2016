@@ -1,1 +1,3 @@
-# MidMichJournal_July2016
+# The Mid Michigan Journal
+
+### July 10 - 16 2016
